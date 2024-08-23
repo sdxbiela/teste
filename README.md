@@ -13,4 +13,4 @@ Ultilizo este espaço para a minha organização e compartilhamento dos meus pro
 
 
 
-![https://media1.tenor.com/m/NXP4-QiGI10AAAAC/witch-samhian.gif]
+![](https://media1.tenor.com/m/NXP4-QiGI10AAAAC/witch-samhian.gif)
